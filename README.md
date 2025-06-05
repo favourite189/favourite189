@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @favourite189
 -  NAME:LUKE FAVOUR
-- 🌱 I’m currently learning data analysis
-- 📫 How to reach me on bisfavour75@gmail.com
+- 🌱 Data Entry/Data Analyst/AI/ML
+- 📫 How to reach me on bisolafavour75@gmail.com
 
 
 <!---
