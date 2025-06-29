@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @favourite189
 -  NAME:LUKE FAVOUR
-- 🌱 Data Entry/Data Analyst/AI/ML ENIGNEER
+- 🌱 Data Entry/Data Analyst/AI/ML ENGINEER
 - 📫 How to reach me on bisolafavour75@gmail.com,https://www.linkedin.com/in/favour-luke-716a49242/
   
 
